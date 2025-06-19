@@ -1,4 +1,4 @@
-# Mexico.EXE
+# Mexican.exe
 
 
 ![giphy-1906052901](https://github.com/user-attachments/assets/bf86bb37-2c07-4ba7-aab2-68e0600df1b2)
